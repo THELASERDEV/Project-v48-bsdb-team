@@ -1,1 +1,2 @@
 # Project-v48-bsdb-team
+NEW UPDATE AVAILABLE TO V48.306 WITH R-T 
